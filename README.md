@@ -1,1 +1,1 @@
-# amandacdasilva.github.io
+index, about DMD, resources and contact
